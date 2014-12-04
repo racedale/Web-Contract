@@ -103,7 +103,9 @@ Oh and don’t forget those men with big dogs.
 ### The dotted line
 
 Signed by and on behalf of [Dale Race]
+
 Signed by and on behalf of [customer name]
+
 Date [date]
 
 Everyone should sign above and keep a copy for their records.
